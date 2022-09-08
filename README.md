@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @phirsch-19
+- 👀 I’m interested in cyber-security
+- 🌱 I’m currently learning cyber-security alone
+- 💞️ I’m looking to collaborate with anyone who like cyber-security
+- 📫 How to reach me : pierre.hirsch.pro@gmail.com
